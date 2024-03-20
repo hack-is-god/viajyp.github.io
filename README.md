@@ -1,1 +1,0 @@
-# viajyp.github.io
